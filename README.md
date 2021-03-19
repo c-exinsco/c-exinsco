@@ -9,7 +9,8 @@
 -   &nbsp;&nbsp;&nbsp;https://feeds.c-exins.co<Br>
 -   &nbsp;&nbsp;&nbsp;https://forum.c-exins.co<Br>
 -   &nbsp;&nbsp;&nbsp;https://blog.c-exins.co<Br>
--   &nbsp;&nbsp;&nbsp;https://news.c-exins.co<Br><br>
+-   &nbsp;&nbsp;&nbsp;https://news.c-exins.co<Br>
+-   &nbsp;&nbsp;&nbsp;https://games.c-exins.co<Br><br>
 -   Software Projects:<br>
 -   &nbsp;&nbsp;&nbsp;Could not disclose the details of our under development projects but would be get updated after each alphpa releases<Br><Br><Br>
 - 📫 How to reach me <br><br> 
