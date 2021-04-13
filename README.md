@@ -17,8 +17,8 @@
 -   &nbsp;&nbsp;&nbsp;Could not disclose the details of our under development projects but would be get updated after each alphpa releases<Br><Br><Br>
 - 📫 How to reach me <br><br> 
 - 
-                    Web     :   https://www.c-exins.co <br>
-                    Email   :   info@c-exins.co <br>
+                    Web     :   https://www.c-exins.co
+                    Email   :   info@c-exins.co
                                 support@c-exins.co 
 
 <!---
