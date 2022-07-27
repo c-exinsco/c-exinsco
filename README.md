@@ -17,6 +17,24 @@
 -   &nbsp;&nbsp;&nbsp;Could not disclose the details of our under development projects but would be get updated after each alphpa releases<Br><Br><Br>
 - 📫 How to reach me <br><br> 
 - 
+
+-   C-EXINS Blockchain department, Odeonus: Social Media <br>
+-   &nbsp;&nbsp;&nbsp;https://twitter.com/cexinsco<Br>
+-   &nbsp;&nbsp;&nbsp;https://www.instagram.com/cexinsco<Br>
+-   &nbsp;&nbsp;&nbsp;https://t.me/cexinsco<Br>
+-   &nbsp;&nbsp;&nbsp;https://discord.new/QQy9fskxavaD<Br>
+-   &nbsp;&nbsp;&nbsp;https://pinterest.com/cexinsco<Br>
+-   &nbsp;&nbsp;&nbsp;https://www.reddit.com/user/cexinsco<Br>
+-   &nbsp;&nbsp;&nbsp;https://cexinscocrypt-dod6095.slack.com/<Br>
+-   &nbsp;&nbsp;&nbsp;https://facebook.com/cexinsco<Br>
+-   &nbsp;&nbsp;&nbsp;https://tiktok.com/@cexinsco?lang=en<Br>
+-   &nbsp;&nbsp;&nbsp;https://www.youtube.com/channel/UCjtssoExd5cf9NNKooyvW4g<Br>
+-   &nbsp;&nbsp;&nbsp;https://t.me/AzurayAZYTradersGRP1 (Join Telegram Chat Group: AZURAY AZY)<Br>
+-   &nbsp;&nbsp;&nbsp;https://t.me/OdeMaticODMTradersGRP1 (Join Telegram Chat Group: OdeMatic ODM)<Br>
+-   &nbsp;&nbsp;&nbsp;https://t.me/HabitantHBTTradersGRP1 (Join Telegram Chat Group: Habitant HBT)<Br>
+-   &nbsp;&nbsp;&nbsp;https://t.me/CXTronCXTTradersGRP1 (Join Telegram Chat Group: CXTron CXT)<Br>
+
+
                     Web     :   https://www.c-exins.co
                     Email   :   info@c-exins.co
                                 support@c-exins.co 
